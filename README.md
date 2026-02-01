@@ -1,1 +1,1 @@
-### Hi there, I'm [Suven!](https://suven.xyz) 👋
+### Hi there, I'm Suven 👋
